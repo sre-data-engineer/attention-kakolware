@@ -9,4 +9,4 @@ imageshack.us
 уровень упоротости: сильная
 анамнез: вместо картинок подставляет глупую военную пропаганду каклов, пропаганда динамически меняется
 пруф: https://hydrogenaud.io/index.php/topic,62218.msg733466.html#msg733466 http://img227.imageshack.us/img227/5770/screenie1q.png http://img709.imageshack.us/img709/2804/screenie2p.png
-скриншот обосравшегося хохла: https://i.imgur.com/amXZyAO.jpg
+скриншот обосравшегося хохла: https://i.imgur.com/amXZyAO.jpg https://i.imgur.com/YJ73C6w.jpg
